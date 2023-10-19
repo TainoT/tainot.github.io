@@ -1,1 +1,1 @@
-# tainot.github.io
+Here will be a portolio of various project as well as access to my networks including a blog and whatso.
